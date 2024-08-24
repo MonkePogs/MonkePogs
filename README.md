@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MonkePogs
+- 👀 Owner of GoldenKits (known as GoKits) and LocalCrystal.
+- 🌱 I'm a skript developer and server manager.
+- 📫 If you have an offer feel free to dm me on Discord. (mratheerno)
